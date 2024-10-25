@@ -8,6 +8,10 @@
 
 [包含美剧所有资源频道：](https://t.me/wangpank)https://t.me/wangpank
 
+公众号：网盘资源收集
+
+![image](https://github.com/user-attachments/assets/1cce22f5-7491-4175-b783-64c35568f534)
+
 																				
 																									
 ## 免费美剧目录																		
